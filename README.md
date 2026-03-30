@@ -36,7 +36,8 @@ The Digital Literacy Portfolio focuses on developing essential digital skills su
 
 ## 🔗 Presentation Link
 
-https://www.canva.com/design/DAHExn5cJAA/-K7FUUEFC6gyAm69Lp-DYg/edit *(if you have one)*
+https://www.canva.com/design/DAHExn5cJAA/-K7FUUEFC6gyAm69Lp-DYg/edit
+https://docs.google.com/forms/d/e/1FAIpQLSdJXA6NabiiQiMsNnWwapNgkFc_VHaMtTUI3cNa3Zqo8kl1rA/viewform google form [task 2 B]
 
 ---
 
